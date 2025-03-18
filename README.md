@@ -1,0 +1,2 @@
+# High_School_Math_Teaching_notes_2025
+我自己的高中数学教学笔记
